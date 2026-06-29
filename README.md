@@ -1,4 +1,6 @@
 ## Hi there 👋
+- 😄 Pronouns: him/he
+- ⚡ Fun fact: idk what im doing lmao
 
 <!--
 **Roswell3429-collab/Roswell3429-collab** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
